@@ -1,0 +1,1 @@
+It's been about two years since I first wrote my first line of code and about a year since I started coding professionally, it's been a fun filled experience full of hard work, commitment, rejection, doubts, imposter syndrome and every other mix of emotions.
